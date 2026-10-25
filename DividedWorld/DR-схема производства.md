@@ -32,7 +32,7 @@ tags: [excalidraw]
 
 Уникальные травы ^Nw6v6Gwb
 
-[[Ж-Дом низкой плотности]] ^mmblF3rM
+[[П-лесопилка]] ^mmblF3rM
 
 Доски ^McVBD2QC
 
